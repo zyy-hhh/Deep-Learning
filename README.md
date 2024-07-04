@@ -1,2 +1,2 @@
-参考资料  http://t.csdnimg.cn/96StB  
+参考  http://t.csdnimg.cn/96StB  
 
